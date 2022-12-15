@@ -14,3 +14,6 @@ This website is available via URL link.
 ![screenshot of complete webpage](./starter/assets/images/screencapture-file-Users-anniegeorge-Documents-All-Repositories-2022-week-1-Horiseon-Webpage-index-html-2022-12-15-16_49_40.png)
 
 ## CREDITS
+to the most high
+jah
+rastafari
